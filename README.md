@@ -1,1 +1,1 @@
-- iOS Engineer | Hobbyist Photographer 📸 | Pak🏠 | Lahorian 🗼 | Hussaini ❤ | Lio | Self Fan
+- iOS Engineer | Pak🏠 | Lahorian 🗼 | Hussaini ❤ | Lio | Self Fan
